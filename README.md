@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...la informatica,la medicina,la tecnologia
 - 🌱 I’m currently learning ...Git,Html,Phyton
 - 💞️ I’m looking to collaborate on ... ?????
-- 📫 How to reach me ...
+- 📫 How to reach me ... paulinaznunez@gmail.com, @paulina.zuniga.n
 - 😄 Pronouns: ...Pauli,Pau
 - ⚡ Fun fact: ...
 
